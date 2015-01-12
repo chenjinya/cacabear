@@ -7,3 +7,10 @@
 
 
 !["²Á²ÁĞÜ"](https://raw.githubusercontent.com/chenjinya/cacabear/master/cacabear.png)
+
+ÓÎÏ·Íæ·¨
+---------
+
+²ÁµôÌù°ÉĞÜ
+
+["Ô¤ÀÀµØÖ·"](http://http://chenjinya.cn/)
